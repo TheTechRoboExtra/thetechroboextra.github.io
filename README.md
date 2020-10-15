@@ -2,4 +2,4 @@
 Cool Beta Wiibsite
 
 
-todo add rickrooll (insert lenny face here)
+todo add rickrooll channel (insert lenny face here)
